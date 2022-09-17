@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jaryodd
-- 👀 I’m interested in getting a career in the feild after shchool. 
+- 👀 I’m interested in getting a career in the feild after school. 
 - 🌱 I’m currently learning computer coding
 - 💞️ I’m looking to collaborate on websites and application construction
 - 📫 How to reach me jaryodd@gmail.com
